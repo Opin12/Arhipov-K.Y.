@@ -7,3 +7,4 @@ https://docs.google.com/document/d/1Wru75NdOvcZiQp0zt9ay31VRWTfVoOB09lbafXDSMwE/
 CyberCamp world - https://docs.google.com/document/d/1G7yAWrkj_LJpxVNdovZPl-QKIlr5s0FSQw1f0DuTgXw/edit?usp=sharing
 Степик world - https://docs.google.com/document/d/1rjCNT0LeXwaImIGDJxhOJCU9SEJh1Bj2RZCBMLS1bl4/edit?usp=sharing
 Позитивный Портал world - https://docs.google.com/document/d/1VJWfBfygeTnomY_doS766jcmqGYjNbbtNMdw4efFMwM/edit?usp=sharing
+лекция 09 - https://docs.google.com/document/d/1eO2zMMK1y69BCN8G7pqvB3Abdl1Jwefk7k3N7vzHnGc/edit?usp=sharing
