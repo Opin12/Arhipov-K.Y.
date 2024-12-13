@@ -12,3 +12,4 @@ CyberCamp world - https://docs.google.com/document/d/1G7yAWrkj_LJpxVNdovZPl-QKIl
 PytHon - https://docs.google.com/document/d/159LNF2tPY7GKSFNmU6Ioeg7P9An-RF_MyO7mDe0apVs/edit?usp=sharing
 контрольная информатика - https://docs.google.com/document/d/1EloHlFC2-QmnaHjV3x5X3ULQYxVB8hxxhrdqfYXWuLQ/edit?usp=sharing
 VK Security Сonfab - https://docs.google.com/document/d/1AgdxFoNjrJxG7y6-xIVCBWinSf-3OpTTsiMaanqKt1Q/edit?usp=sharing
+виртуал бокс презентация - https://docs.google.com/document/d/1U75n6LPk59FlMxghq_FX3ByVSCwAE_3WWZRuN2cFHt0/edit?usp=sharing
