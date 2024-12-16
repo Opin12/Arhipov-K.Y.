@@ -8,7 +8,7 @@ CyberCamp world - https://docs.google.com/document/d/1G7yAWrkj_LJpxVNdovZPl-QKIl
 Степик world - https://docs.google.com/document/d/1rjCNT0LeXwaImIGDJxhOJCU9SEJh1Bj2RZCBMLS1bl4/edit?usp=sharing
 Позитивный Портал world - https://docs.google.com/document/d/1VJWfBfygeTnomY_doS766jcmqGYjNbbtNMdw4efFMwM/edit?usp=sharing
 лекция 09 - https://docs.google.com/document/d/1eO2zMMK1y69BCN8G7pqvB3Abdl1Jwefk7k3N7vzHnGc/edit?usp=sharing
-проект - https://ru.yougile.com/board/hjqq51hi2r9t
+проект ЮДЖАЙЛ - https://ru.yougile.com/board/hjqq51hi2r9t
 PytHon - https://docs.google.com/document/d/159LNF2tPY7GKSFNmU6Ioeg7P9An-RF_MyO7mDe0apVs/edit?usp=sharing
 контрольная информатика - https://docs.google.com/document/d/1EloHlFC2-QmnaHjV3x5X3ULQYxVB8hxxhrdqfYXWuLQ/edit?usp=sharing
 VK Security Сonfab - https://docs.google.com/document/d/1AgdxFoNjrJxG7y6-xIVCBWinSf-3OpTTsiMaanqKt1Q/edit?usp=sharing
